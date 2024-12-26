@@ -3,4 +3,5 @@ Here you can find almost all kind of classic literature books you need without w
 
 Numbrs of books start from here- request your book
 
-For George orwell works_: https://drive.google.com/drive/folders/1US1J8D6pkFVWCzxi7znh3sT3KyFfgttQ?usp=drive_link
+For George orwell works_: https://drive.google.com/drive/folders/1yDwG5O5z9qHSC83JK9c-UKzb7_lgwiGa?usp=drive_link
+Women with pens: https://drive.google.com/drive/folders/1yDwG5O5z9qHSC83JK9c-UKzb7_lgwiGa?usp=drive_link
